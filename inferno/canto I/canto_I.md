@@ -15,19 +15,18 @@ Novamente me pus a me esquivar daquela fera e mais cansado ainda fiquei. Por fim
 
 Praticamente aceitando aquela realidade eu mal pude perceber a presença de um vulto que estava se aproximando.
 
-- Ei! Por favor, me ajude - comecei a gritar - mesmo que você seja homem ou sombra!
+-- Ei! Por favor, me ajude - comecei a gritar - mesmo que você seja homem ou sombra!
 
-- Não se preocupe, mas saiba que eu já não sou mais homem vivo - começou a responder o vulto enquanto se colocava entre mim e a loba -. Sabe a grande região de Mântua? Nasci lá e vivi nos tempos do grande imperador Júlio César e Augusto em Roma e fui Poeta. E você? Por que não sobe logo esse monte?
+-- Não se preocupe, mas saiba que eu já não sou mais homem vivo - começou a responder o vulto enquanto se colocava entre mim e a loba -. Sabe a grande região de Mântua? Nasci lá e vivi nos tempos do grande imperador Júlio César e Augusto em Roma e fui Poeta. E você? Por que não sobe logo esse monte?
 
-- Como assim? Você por acaso é Virgílio? - perguntei com vergonha e ainda com medo por conta de toda aquela situação - Como pode isso ser possível? Você é o grande poeta no qual eu sempre me inspirei! Sou um grande fã de toda a tua obra! Infelizmente não consegui subir o monte por causa dessas feras que se põem na minhna frente, principalmente por causa dessa loba. Mas já que você está aqui, por favor, me ajude a escapar!
+-- Como assim? Você por acaso é Virgílio? - perguntei com vergonha e ainda com medo por conta de toda aquela situação - Como pode isso ser possível? Você é o grande poeta no qual eu sempre me inspirei! Sou um grande fã de toda a tua obra! Infelizmente não consegui subir o monte por causa dessas feras que se põem na minhna frente, principalmente por causa dessa loba. Mas já que você está aqui, por favor, me ajude a escapar!
 
-- Olha, tua verdadeira jornada ainda está por começar por outro caminho - respondeu o poeta quando me viu começando a lacrimejar - já que essa fera, essa loba, é a pior de todas. Acredite, ela só vai sair daqui quando finalmente vier o Lebreiro, que é o que vai trazer a morte pra ela. Ele vai vir pra restaurar toda essa grande Itália e, por fim, mandar essa loba de volta para o inferno, que é de onde a Inveja trouxe ela.
+-- Olha, tua verdadeira jornada ainda está por começar por outro caminho - respondeu o poeta quando me viu começando a lacrimejar - já que essa fera, essa loba, é a pior de todas. Acredite, ela só vai sair daqui quando finalmente vier o Lebreiro, que é o que vai trazer a morte pra ela. Ele vai vir pra restaurar toda essa grande Itália e, por fim, mandar essa loba de volta para o inferno, que é de onde a Inveja trouxe ela.
 
 Depois de falar isso ele me fez uma proposta:
 
-- Você, nesse momento, está em uma siituação complicada e eu sugiro fortemente que me siga. Mas caso aceite isso, vou precisar te levar para ver e passar entre aqueles condenados que passam e passarão toda a eternidade gritando por uma segunda chance, mesmo sabendo que é em vão. Depois você vai precisar ir comigo ver aqueles outros que também sofrem das mais diversas formas mas que se mantém contentes por saberem que um dia terão poderão alcançar sair dali. E por fim, se você quiser, vai poder visitar os céus, mas lá terá que ser guiado por uma outra alma mais digna que eu, afinal eu não posso entrar lá, já que, em vida fui muito rebelde.
+-- Você, nesse momento, está em uma siituação complicada e eu sugiro fortemente que me siga. Mas caso aceite isso, vou precisar te levar para ver e passar entre aqueles condenados que passam e passarão toda a eternidade gritando por uma segunda chance, mesmo sabendo que é em vão. Depois você vai precisar ir comigo ver aqueles outros que também sofrem das mais diversas formas mas que se mantém contentes por saberem que um dia terão poderão alcançar sair dali. E por fim, se você quiser, vai poder visitar os céus, mas lá terá que ser guiado por uma outra alma mais digna que eu, afinal eu não posso entrar lá, já que, em vida fui muito rebelde.
 
-- Meu grande mestre - comecei a responder -, eu te imploro, pelo amor dos Céus, me ajude a sair daqui. Eu te seguirei por qualquer caminho que for necessário! Estou disposto a me submeter à todas as provações, e se eu puder pelo menos vislumbrar um pedacinho dos portões de São Pedro eu lhe serei grato pelo resto da minha vida!
+-- Meu grande mestre - comecei a responder -, eu te imploro, pelo amor dos Céus, me ajude a sair daqui. Eu te seguirei por qualquer caminho que for necessário! Estou disposto a me submeter à todas as provações, e se eu puder pelo menos vislumbrar um pedacinho dos portões de São Pedro eu lhe serei grato pelo resto da minha vida!
 
 O poeta me acenou com a cabeça, e, num piscar de olhos, mostrou sua imponência diante daquela fera, que conseguimos driblar e então eu comecei a o acompanhar.
-
