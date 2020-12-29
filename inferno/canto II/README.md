@@ -1,7 +1,6 @@
 # Canto II
 
-~ A razão da viagem: Beatriz
-
+_A razão da viagem: Beatriz_
 
 Já começava a anoitecer quando nós começamos a viagem. Mas antes de mais nada, peço a vocês, grandes musas, me dêem a inspiração necessária para eu contar essa história da forma mais precisa possível sem cometer erros! Sendo assim, se me permitem, eu comecei mais ou menos assim:
 

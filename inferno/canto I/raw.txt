@@ -1,7 +1,6 @@
 # Canto I
 
-~ A selva escura; As selvas; O espírito de Virgílio
-
+_A selva escura; As selvas; O espírito de Virgílio_
 
 Eu já sentia que estava por volta da metade da minha vida quando, de repente, me vi perdido em uma selva escura e que também comecei a sentir que minha vida não tinha mais rumo. Não tenho nenhuma palavra pra conseguir descrever aquele lugar. Na verdade acho que a única comparação que poderia fazer seria comparar essa selva escura com a própria morte, mas mesmo assim ainda sinto que falharia miseravelmente em descrever aquilo. Mas para que você, leitor, possa compreender, de fato, o grande bem que a partir dali se deu início é importante que eu fale outras coisas, que, assim como a selva escura, passam muito longe de ser coisas boas ou agradáveis.
 
